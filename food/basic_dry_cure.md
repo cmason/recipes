@@ -1,6 +1,6 @@
 # Basic Dry Cure
 
-This basic dry cure can be used to make any kind of cured product, but it is especially fien with pork.
+This basic dry cure can be used to make any kind of cured product, but it is especially fine with pork.
 
 ## Ingredients
 
