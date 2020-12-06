@@ -1,4 +1,4 @@
-#Bacon
+# Bacon
 
 Basic fresh bacon recipe.
 
