@@ -8,7 +8,7 @@ Distill and watch alcohol content -  use a floating alcoholmeter or hydrometer i
 
 Taste a bit and stop if bitter taste shows up or pure water. Alcohol content decreases as the distilling process takes place so you have very strong at the beginning and very light to no alcohol at the end. The alcoholmeter helps getting a consistent alcohol content between batches.
 
-In Transylvania they make it stronger by double distilling. North of Romania they tripe distill to 85% volume. It’s drank in shot glasses with raw bacon otherwise it burns your throat – don’t ask me how I know.
+In Transylvania they make it stronger by double distilling. North of Romania they triple distill to 85% volume. It’s drank in shot glasses with raw bacon otherwise it burns your throat – don’t ask me how I know.
 
 
 
